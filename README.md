@@ -12,4 +12,4 @@ j0seeduard0/j0seeduard0 is a ✨ special ✨ repository because its `README.md` 
 You can click the Preview link to take a look at your changes.
 --->
 
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fsearch%2Fgif-gifs&psig=AOvVaw1tSx5FdAer2JHP0Qt3HgIY&ust=1693099999583000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCNDBj5OX-YADFQAAAAAdAAAAABA0)
+![](https://tenor.com/pt-BR/view/minions-gif-18954582)
